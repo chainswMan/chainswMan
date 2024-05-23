@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning at school
 - 💞️ I’m looking to collaborate on girls
 - 📫 How to reach me my email tyler.wilsonstaples@education.nsw.gov.au
-- 😄 Pronouns: ...
+- 😄 Pronouns r gay so dont care
 - ⚡ Fun fact: i am the best at video games
 
 <!---
